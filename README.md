@@ -1,2 +1,2 @@
 # presentaciones-equipo
-- Soy alonso y quiero mucho a mi gata
+- Soy alonso y quiero mucho a mi gata Pelusa
